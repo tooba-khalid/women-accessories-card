@@ -1,0 +1,1 @@
+# women-accessories-card
